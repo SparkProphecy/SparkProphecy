@@ -155,7 +155,9 @@ However, the popularity of robots is also phased. After the awakening of the gro
 > And... IT WAS SO BORING.
 > 
 > ——Joker
-> 
+
+![image](https://user-images.githubusercontent.com/8394303/120452180-9b36d380-c3c4-11eb-84df-534ea4514a8f.png)
+
 
 The establishment and vested interest groups in the industry make me disgusting. The young people in the industry have no chance to be forced to compete inwardly by the so-called rules that have been formed.
 
@@ -207,5 +209,9 @@ Continuing to take Musk as an example, everything he does is very VC: take human
 Prometheus fetched the fire, VC should be the person who passes the fire.
 
 I would love to be this fire passer.
+
+The fire phoenix is immortal, and the spark ignites a prairie fire.
+
+![image](https://user-images.githubusercontent.com/8394303/120452287-af7ad080-c3c4-11eb-996d-8cfeee4286c5.png)
 
 The fire phoenix is immortal, and the spark ignites a prairie fire.
