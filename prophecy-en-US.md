@@ -1,6 +1,9 @@
 # Spark Prophecy 2021
 
-*YueTian Chen*
+*YueTian Chen* 
+github: @skywalkercyt
+
+(google translation)
 
 ### Spark Prophecy (I)
 Binance will seize the stock exchange in several steps and then seize the voice of the entire financial system:
