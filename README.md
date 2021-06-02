@@ -10,7 +10,7 @@
 - 
 
 #### English
-- [Github repo (google translation version)](https://github.com/SparkProphecy/SparkProphecy/blob/main/prophecy-en-US.md)
+- [Github (google translation version)](https://github.com/SparkProphecy/SparkProphecy/blob/main/prophecy-en-US.md)
 - 
 
 ---------------
