@@ -217,5 +217,3 @@ I would love to be this fire passer.
 The fire phoenix is immortal, and the spark ignites a prairie fire.
 
 ![image](https://user-images.githubusercontent.com/8394303/120452287-af7ad080-c3c4-11eb-996d-8cfeee4286c5.png)
-
-The fire phoenix is immortal, and the spark ignites a prairie fire.
