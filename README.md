@@ -16,8 +16,9 @@
 ---------------
 
 ### Writer Informations
-YueTian Chen 
+***YueTian Chen***
 
-github: @skywalkercyt
-- Introduction(TBD)
+- github: @skywalkercyt
+- zhihu: https://www.zhihu.com/people/vincentskywalker
+- 
 
