@@ -152,7 +152,7 @@ However, the popularity of robots is also just a stage, after all, after the awa
 >
 > ——Joker
 
- ![Generated](file:////Users/xiankun/Library/Group%20Containers/UBF8T346G9.Office/TemporaryItems/msohtmlclip/clip_image001.jpg)
+![image](https://user-images.githubusercontent.com/8394303/120452180-9b36d380-c3c4-11eb-84df-534ea4514a8f.png)
 
 The industry's establishment and vested interest groups make me sick to my stomach, and the industry's young people have no opportunity: they are forced into involution by the so-called rules that have been formed.
 
@@ -198,6 +198,6 @@ I would love to be the fire passer.
 
 The phoenix does not die; a little spark can start a prairie fire.
 
- ![Generated](file:////Users/xiankun/Library/Group%20Containers/UBF8T346G9.Office/TemporaryItems/msohtmlclip/clip_image002.jpg)
+![image](https://user-images.githubusercontent.com/8394303/120452287-af7ad080-c3c4-11eb-996d-8cfeee4286c5.png)
 
  
