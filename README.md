@@ -11,7 +11,7 @@
 
 #### English
 - [Github (google translation version)](https://github.com/SparkProphecy/SparkProphecy/blob/main/prophecy-en-US.md)
-- 
+- [Github (rct translated version)](https://github.com/SparkProphecy/SparkProphecy/blob/main/Spark%20Prophecy%20(rct%20translated%20version).md)
 
 ---------------
 
